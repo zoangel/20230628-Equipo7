@@ -1,1 +1,1 @@
-Angel Reyes - Edison Cruz - Daniela Lozano - Abraham Josafat Dominguez Juarez
+Angel Reyes - Daniela Lozano - Abraham Josafat Dominguez Juarez - Leonardo Sanabria - Edison Cruz
