@@ -1,4 +1,2 @@
 
-Angel Reyes
-Leonardo Sanabria
-Daniela Lozano
+Angel Reyes - Daniela Lozano - Abraham Josafat Dominguez Juarez - Leonardo Sanabria
