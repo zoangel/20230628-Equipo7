@@ -1,1 +1,1 @@
-Angel Reyes - Daniela Lozano
+Angel Reyes - Daniela Lozano - Abraham Josafat Dominguez Juarez
