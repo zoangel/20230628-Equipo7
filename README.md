@@ -1,3 +1,7 @@
 #**Abraham Dominguez**
-##Mexico
-Mexico ::smile::
+
+##  Mexico 
+
+Mexico :smile:
+
+Angel Reyes - Daniela Lozano - Abraham Josafat Dominguez Juarez
